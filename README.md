@@ -5,7 +5,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=credit-s&label=Profile%20views&color=0e75b6&style=flat" alt="credit-s" /> </p>
 
-- 📫 How to reach me **builderhall@gmail.com**
+- 📫 Please reach me on my email 📬📬📧 **builderhall@gmail.com** 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
